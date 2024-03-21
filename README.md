@@ -5,5 +5,6 @@ Jasa Pembuatan Website Judi Online
 - 12 Themes Web Game Slot
 
 DEMO:
-https://pastihoki.website
-https://indogps.site
+- https://pastihoki.website
+- https://bansos.asia
+- https://indogps.site
