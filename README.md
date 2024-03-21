@@ -1,4 +1,4 @@
-# Website-Slots-Ptragmatic-Play
+# Website-Slots-Pragmatic-Play
 Jasa Pembuatan Website Judi Online 
 - 468 Provider Slots & Casino
 - 68 Pasaran TOGEL Terbaik
